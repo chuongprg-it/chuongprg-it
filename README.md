@@ -7,6 +7,8 @@
         + vochitruong.uit@gmail.com
 - ⚡ Fun fact: Guitar, Editor.
 
+![image](https://24hstore.vn/upload_images/images/2019/11/14/anh-gif-1-min.gif)
+
 ## 🌐Socials
 [![Behance](https://img.shields.io/badge/Behance-1769ff?logo=behance&logoColor=white)](https://behance.net/https://www.behance.net/chuongit) [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/https://www.facebook.com/Chuong.IT02) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/https://www.instagram.com/trg_vc.prg/) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/vo-chi-truong-362312280/) 
 
